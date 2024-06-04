@@ -1,2 +1,2 @@
-# emilyliu1144-comics
+# 1144-comics
 a place to read my comics
